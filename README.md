@@ -1,0 +1,2 @@
+# Nostradamus
+Trade the Future
